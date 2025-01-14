@@ -1,6 +1,6 @@
 # 🎮 Fala aí! Eu sou Paulo!
 
-![Pixel Gamer Animation](https://media.giphy.com/media/8fnBtqzvzcSzFe1ZMn/giphy.gif)
+![Pixel Gamer Animation](https://i.gifer.com/K76q.gif)
 
 Sou um **gamer apaixonado** por tudo relacionado a jogos! No meu tempo livre, adoro explorar mundos incríveis, superar desafios épicos e me perder em histórias fantásticas. Não importa se é FPS frenético, uma aventura cheia de mistérios ou aquele indie com uma vibe especial – eu estou sempre pronto pra jogar! 🎯
 
