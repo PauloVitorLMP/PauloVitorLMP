@@ -1,4 +1,4 @@
-# 🎮 Fala aí! Eu sou [Seu Nome]
+# 🎮 Fala aí! Eu sou Paulo
 
 Sou um gamer apaixonado por tudo relacionado a jogos! Adoro explorar diferentes mundos, vencer desafios e compartilhar minhas experiências com a galera.
 
